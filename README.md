@@ -1,0 +1,1 @@
+# ApowerManager-Latest-Patch
